@@ -1,5 +1,2 @@
-# collab-exercise-week03 dih fuahhh puh
-Trym har en mandingo
-Noah er basiclyy Johnny Sins
-Mimmi hsr en wet puh
-Matty er dårlig i clash
+# collab-exercise-week03 
+
